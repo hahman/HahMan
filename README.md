@@ -1,2 +1,2 @@
 # HahMan
-认真看，认真学
+Look Me
